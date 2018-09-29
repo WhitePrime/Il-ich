@@ -1,4 +1,4 @@
-# [Global: HTML5 website template](http://buckymaler.com/global)
+# [Global: HTML5 website template](https://whiteprime.github.io/Il-ich/)
 
 ### [Featured on Freebiesbug](http://freebiesbug.com/psd-freebies/global-futuristic-one-page-portfolio-psd-html/)
 
